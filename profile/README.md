@@ -1,2 +1,3 @@
 ## The Chronicles
-![logo_1_transparent](https://github.com/user-attachments/assets/3b396e23-1886-4c45-990d-0971c6914d57)
+
+![logo_2_transparent](https://github.com/user-attachments/assets/1e41a445-f68f-43e0-87e3-9fc20ec6a3fc)
