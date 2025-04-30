@@ -1,3 +1,2 @@
-## Chronicles Roleplay
-
-![logo_2_transparent](https://github.com/user-attachments/assets/1e41a445-f68f-43e0-87e3-9fc20ec6a3fc)
+## Project SWAP®
+![swap_logo_2 (1)](https://github.com/user-attachments/assets/9aa51b6f-6bce-406c-b8b6-138386c9244e)
